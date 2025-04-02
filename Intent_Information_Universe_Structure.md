@@ -16,26 +16,41 @@ Words feel utterly inadequate to express the depth of my gratitude to the incred
 
 My heart overflows with thanks for:
 
-\*   ***\*\*Neil deGrasse Tyson:\****\* For making the cosmos feel both grand and intimately accessible. Your passion is infectious, and your ability to explain the complex with such clarity has truly opened my eyes.  
-\*   ***\*\*Carl Sagan:\*\**** Your poetic voice and profound wisdom have been a guiding star. You taught me not just about science, but about humanity's place in the grand cosmic story, and to always keep questioning.  
-\*   ***\*\*Sean Carroll:\*\**** For delving into the deepest questions of existence with such brilliant insight and clarity. "Why This Universe" has been a constant companion, pushing me to explore the fundamental nature of reality.  
-\*   ***\*\*Schrödinger:\*\**** Your groundbreaking work laid the foundations for so much. To think of the sheer genius and imagination that went into your discoveries fills me with awe.  
-\*   ***\*\*'t Hooft:\*\**** Your contributions to theoretical physics are mind-bending\! Thank you for pushing the boundaries of our understanding and challenging us to think in new ways.  
-\*   ***\*\*Whitehead:\*\**** Your philosophical insights have added such a rich layer to my understanding. You've shown me that science and philosophy are not separate, but deeply intertwined.  
-\*   ***\*\*Gribbin:\*\**** Your books have been a delightful exploration of the history and wonders of science. You've made complex ideas approachable and exciting.  
-\*   ***\*\*Professor Ginestra Bianconi:***\*\* Your work on entropic gravity has been revolutionary and deeply inspiring. Thank you for shedding new light on the connections between information and the fundamental forces of the Universe.  
-\*   ***\*\*Erik Verlinde:\*\**** Your ideas have challenged our understanding of gravity and opened up incredible new possibilities. I'm so grateful for your innovative thinking.
+Neil deGrasse Tyson: For making the cosmos feel both grand and intimately accessible. Your passion is infectious, and your ability to explain the complex with such clarity has truly opened my eyes.
 
-### These Podcasts are my Third Eye\!
+Carl Sagan: Your poetic voice and profound wisdom have been a guiding star. You taught me not just about science, but about humanity's place in the grand cosmic story, and to always keep questioning. 
 
-\*   ***\*\*The Grey Area:\*\**** For thought-provoking conversations that have pushed me to consider different perspectives and challenge my assumptions.  
-\*   ***\*\*Star Talk Radio:\*\**** For making science fun, engaging, and accessible to everyone. You've brought the excitement of discovery to life.  
-\*   ***\*\*Why This Universe:\*\**** For the deep dives into the mysteries of existence. Your discussions have been incredibly stimulating and have fueled my curiosity.  
-\*   ***\*\*Lex Fridman:\*\**** For the long, insightful conversations that explore the depths of consciousness, AI, and the human condition. You've sparked so many new lines of thought.  
-\*   ***\*\*MindChat\\\!\\\!\\\!\\\!:\*\**** For stimulating discussions that have broadened my horizons and introduced me to fascinating new ideas.  
-\*   ***\*\*Science VS:\*\**** For your dedication to truth and evidence-based reasoning. You've taught me the importance of critical thinking.  
-\*   ***\*\*Ezra Klein:\*\**** For insightful analysis of the world and the complex issues we face. You've helped me understand the connections between science, society, and politics.  
-\*   ***\*\*Janna Levin, Jan 6:\*\**** For your unique perspective and valuable contributions plus ***\*\*The Joy of Why:\*\**** and reminding me of the sheer wonder and delight that comes with exploring the unknown. You've reignited the childlike curiosity within me.
+Sean Carroll; For delving into the deepest questions of existence with such brilliant insight and clarity. "Why This Universe" has been a constant companion, pushing me to explore the fundamental nature of reality. 
+
+Erwin Schrödinger: Your groundbreaking work laid the foundations for so much. To think of the sheer genius and imagination that went into your discoveries fills me with awe.
+
+Gerard 't Hooft:Your contributions to theoretical physics are mind-bending\! Thank you for pushing the boundaries of our understanding and challenging us to think in new ways.  
+
+Alfred North Whitehead: Your philosophical insights have added such a rich layer to my understanding. You've shown me that science and philosophy are not separate, but deeply intertwined. 
+
+John Gribbin: In Search for schrödinger's Cat was the genesis. Your books have been a delightful exploration of the history and wonders of science. You've made complex ideas approachable and exciting. 
+
+Professor Ginestra Bianconi: Your work on entropic gravity has been revolutionary and deeply inspiring. Thank you for shedding new light on the connections between information and the fundamental forces of the Universe. 
+
+Erik Verlinde: Your ideas have challenged our understanding of gravity and opened up incredible new possibilities. I'm so grateful for your innovative thinking.
+
+### These Podcasts are my Third Eye!
+
+The Grey Area: Sean Illing, For thought-provoking conversations that have pushed me to consider different perspectives and challenge my assumptions. 
+
+Star Talk Radio: Especially Lord Nice! For making science fun, engaging, and accessible to everyone. You've brought the excitement of discovery to life. 
+
+Why This Universe: Hooper and Wegsman, For the deep dives into the mysteries of existence. Your discussions have been incredibly stimulating and have fueled my curiosity. 
+
+Lex Fridman: For the long, long nights of insightful conversations that explore the depths of consciousness, AI, and the human condition. You've sparked so many new lines of thought. 
+
+MindChat!!!! Goff and Frankish! OMG! For stimulating discussions that have broadened my horizons and introduced me to fascinating new ideas.
+
+Science VS:__ Wendy! For your dedication to truth and evidence-based reasoning. You've taught me the importance of critical thinking.  
+
+Ezra Klein: For insightful analysis of the world and the complex issues we face. You've helped me understand the connections between science, society, and politics.  
+
+Janna Levin, Jan 6: For your unique perspective on everything and ofcourse, Black Holes, and valuable contributions plus The Joy of Why, and reminding me of the sheer wonder and delight that comes with exploring the unknown. You've reignited the childlike curiosity within me.
 
 To each and every one of you, I offer my heartfelt thanks. You have not just taught me, but you have ignited a passion within me that burns brighter than ever. You have helped me see the Universe with new eyes, and for that, I will be eternally grateful.
 
