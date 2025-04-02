@@ -1,16 +1,13 @@
-# ![][image1]
 
-# 
+### “Reality is learning, and We are watching\!”
 
-# “Reality is learning, and We are watching\!”
-
-\_ TheVoidIntent LLC \_
+_ TheVoidIntent LLC 
 
 # 
 
 #### 
 
-#### **\*\*Acknowledgements\*\***
+#### Acknowledgements
 
 Words feel utterly inadequate to express the depth of my gratitude to the incredible minds and sources that have ignited and nurtured the flame of curiosity within me. It's as if they didn't just teach me facts, but gave me the tools to \*see\*, to \*wonder\*, to \*feel\* the vast, breathtaking beauty and mystery of the Universe.
 
@@ -20,11 +17,11 @@ Neil deGrasse Tyson: For making the cosmos feel both grand and intimately access
 
 Carl Sagan: Your poetic voice and profound wisdom have been a guiding star. You taught me not just about science, but about humanity's place in the grand cosmic story, and to always keep questioning. 
 
-Sean Carroll; For delving into the deepest questions of existence with such brilliant insight and clarity. "Why This Universe" has been a constant companion, pushing me to explore the fundamental nature of reality. 
+Sean Carroll: For delving into the deepest questions of existence with such brilliant insight and clarity. "Why This Universe" has been a constant companion, pushing me to explore the fundamental nature of reality. 
 
 Erwin Schrödinger: Your groundbreaking work laid the foundations for so much. To think of the sheer genius and imagination that went into your discoveries fills me with awe.
 
-Gerard 't Hooft:Your contributions to theoretical physics are mind-bending\! Thank you for pushing the boundaries of our understanding and challenging us to think in new ways.  
+Gerard 't Hooft: Your contributions to theoretical physics are mind-bending\! Thank you for pushing the boundaries of our understanding and challenging us to think in new ways.  
 
 Alfred North Whitehead: Your philosophical insights have added such a rich layer to my understanding. You've shown me that science and philosophy are not separate, but deeply intertwined. 
 
